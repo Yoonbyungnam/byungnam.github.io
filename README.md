@@ -1,1 +1,0 @@
-# byungnam.github.io
